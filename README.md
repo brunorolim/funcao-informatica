@@ -1,1 +1,0 @@
-# entrevista-funcao-informatica
